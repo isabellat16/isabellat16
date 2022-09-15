@@ -1,0 +1,4 @@
+- 👋 Olá, me chamo Isabella Toneto
+- 👀 Eu estou interessada em aprender novas linguagens.
+- 🌱 Atualmente estou aprendendo a criar sites e jogos
+- 💞️ Esse é meu contato pessoal isabella.aguetoni@escola.pr.gov.br.
